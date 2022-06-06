@@ -17,4 +17,6 @@ Hurdles -- My goal was to spend the first 2 weeks studying intently and ideally 
            explaination as needed. I have lost 3 days of prep and expect to lose at least until 5/17/22 ensuring
            I meet the needs of the conflicting assignment as it takes priority.
            
+        -- Due to an unfortunate payroll mishap, I will have to postpone purchasing the exam. I will update timeframes once I know when I can correct this              issue
+           
 ****************************************************************************************************************************************
